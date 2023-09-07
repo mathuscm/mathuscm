@@ -40,6 +40,8 @@ Aperta o botãozinho ai embaixo pra você cair direto nos meus projetos
 ![Matplotlib](https://img.shields.io/badge/Matplotlib-%23ffffff.svg?style=for-the-badge&logo=Matplotlib&logoColor=black)
 
 ## Contatos
+Clica aí! 
+
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/mscordaro/)
 
 ---
