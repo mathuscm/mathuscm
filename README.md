@@ -9,10 +9,10 @@ Meu coração é de Humanas, ex-aluno de Licenciatura ❤️
 Futuro ex-entregador 🕺🏻
 
 ## De onde esse menino saiu? 🛸
-Bem, deixe-me apresentar um pouco do que eu tenho de trajetória a você! 
-Sou um rapaz pacato do interior que se mudou pra cidade grande com alguns sonhos, buscando novas oportunidades e com muita coragem. 
-Cheguei em São Paulo em 2022 e bom... Virei entregador do Ifood. E foi neste momento que a chavinha da vida virou e de repente, vou terminar 2023 formado em Marketing e Analista de Dados! 
-Mas antes de chegar até aqui, passei pelos cursos de Letras e História, não concluí devido a pandemia. Comecei minha carreira de entregador (2020) e de repente, aqui estou com um perfil no GitHub e apaixonado por esta trilha! Sinceramente, não me vejo mais seguindo outra direção 🙂
+Um jovem do interior que se mudou para São Paulo em busca de realizar os próprios sonhos.
+Sempre estive em busca de algo que fizesse sentido para mim.
+Sou entregador há 4 anos e no percurso da jornada da vida já passei pelos cursos de Licenciatura em Letras e História, não formei devido a pandemia, mas tenho minha paixão platônica pela educação.  Do outro lado a tecnologia sempre foi uma curiosidade, um desejo, o que me fascinava os olhos. 
+Desde sempre observar dados para entender situações e ter pistas do porquê elas acontecem e o que pode acontecer é o que sempre me chamou no coração, a área de Analise de Dados foi escolhida com carinho, é aí que pretendo me desenvolver como profissional, explorando os caminhos da tecnologia para buscar soluções nas infinitas possibilidades que possam causar impactos positivos! 🙂
 
 ## E tu vai encontrar o que por aqui? 🕵️
 Vou te mostrar! 🙂
