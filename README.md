@@ -1,6 +1,6 @@
 ### Oi! Eu sou o Matheus 👋
 
-Analista de Dados Jr 🎲
+Analista de Dados 🎲
 
 Estudo Tecnologia e Gestão de Marketing 🖊️
 
@@ -12,7 +12,7 @@ Futuro ex-entregador 🕺🏻
 Um jovem do interior que se mudou para São Paulo em busca de realizar os próprios sonhos.
 Sempre estive em busca de algo que fizesse sentido para mim.
 Sou entregador há 4 anos e no percurso da jornada da vida já passei pelos cursos de Licenciatura em Letras e História, não formei devido a pandemia, mas tenho minha paixão platônica pela educação.  Do outro lado a tecnologia sempre foi uma curiosidade, um desejo, o que me fascinava os olhos. 
-Desde sempre observar dados para entender situações e ter pistas do porquê elas acontecem e o que pode acontecer é o que sempre me chamou no coração, a área de Analise de Dados foi escolhida com carinho, é aí que pretendo me desenvolver como profissional, explorando os caminhos da tecnologia para buscar soluções nas infinitas possibilidades que possam causar impactos positivos! 🙂
+Desde sempre observar dados para entender situações e ter pistas do porquê elas acontecem e o que pode acontecer é o que sempre me chamou no coração, a área de Análise de Dados foi escolhida com carinho, é aí que pretendo me desenvolver como profissional, explorando os caminhos da tecnologia para buscar soluções nas infinitas possibilidades que possam causar impactos positivos! 🙂
 
 ## E tu vai encontrar o que por aqui? 🕵️
 Vou te mostrar! 🙂
