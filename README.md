@@ -6,14 +6,16 @@ Estudo Tecnologia e Gestão de Marketing 🖊️
 
 Meu coração é de Humanas ❤️
 
-Futuro ex-entregador 🕺🏻
+Ex-entregador 🕺🏻
 
 ## De onde esse menino saiu? 🛸
 Um jovem do interior que se mudou para São Paulo em busca de realizar os próprios sonhos.
 
-Sou entregador há 4 anos e no percurso da jornada da vida já passei pelos cursos de Licenciatura em Letras e História, tenho minha paixão platônica pela educação.  Do outro lado a tecnologia sempre foi um fascínio aos olhos. 
-Observar dados para entender situações e ter pistas do porquê elas acontecem e o que pode acontecer é o que sempre me chamou no coração, já analisava dados em Humanas e nem sabia! 😜 
-A área de Análise de Dados foi escolhida com carinho, é aí que pretendo me desenvolver como profissional, explorando os caminhos da tecnologia para buscar soluções nas infinitas possibilidades que possam causar impactos positivos ou descobertas milagrosas! 
+Fui entregador por 4 anos e no percurso da jornada da vida já passei pelos cursos de Licenciatura em Letras e História, tenho minha paixão platônica pela educação.  Do outro lado escolhi a tecnologia e por aí segui, tentando juntar uma paixão na outra, não necessáriamente em termos convencionais.
+
+Observar padrões é natural do ser humano; identificá-los, defini-los e descreve-los, é natural do analista. Já analisava dados e nem sabia! 
+
+Pode até ser que não exista o caminho certo, mas escolhas bem pensadas permitem escolher o trajeto menos errado. 😜
 
 Sobre mim: claramente minhas piadas são péssimas 🙂
 
