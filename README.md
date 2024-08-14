@@ -1,5 +1,7 @@
 ### Oi! Eu sou o Matheus 👋
 
+Cursando Engenharia de Dados na ADA!
+
 Analista de Dados 🎲
 
 Estudo Tecnologia e Gestão de Marketing 🖊️
